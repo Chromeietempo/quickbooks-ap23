@@ -1,4 +1,4 @@
-# 
+# rare QuickBooks para PC ferramentas é o melhor QuickBooks para PC ferramentas com emissao de faturas e processamento de pagamentos. Seguro, confiável e otimizado para máximo
 
 
 
